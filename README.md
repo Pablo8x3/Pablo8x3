@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Pablo8x3
+- 👀 I’m interested in robotics,electronics and 3d printing 🤖
+- 🌱 I’m currently learning about programming and electronics
+- 💞️ I’m looking to collaborate on anything basically
